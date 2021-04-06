@@ -6,6 +6,4 @@
 ## Do you enjoy it?
 
 :eyes: Look at my other projects.
-</br>
-</br>
 :speech_balloon: Please feel free to contact me.
