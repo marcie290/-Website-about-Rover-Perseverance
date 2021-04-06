@@ -1,7 +1,7 @@
 # Website about Rover Perseverance
 
 
-# [Click to view](https://marcie290.github.io/Website-about-Rover-Perseverance/) :eyes: 
+# [Click to view](https://marcie290.github.io/Website-about-Rover-Perseverance/) :alien: 
 
 ## Do you enjoy it?
 
